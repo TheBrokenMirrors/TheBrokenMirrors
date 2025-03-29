@@ -9,12 +9,9 @@
  
  
  ⠀⠀⠀⠀⠀⠀<strong>THE SHOW is .. INSPIREDD.. by the following shows/movies.</strong>
- ⠀⠀⠀⠀⠀>⠀GENERATION LOSS
- ⠀⠀⠀⠀⠀>⠀THE MAZERUNNER TRILOGY
- ⠀⠀⠀⠀⠀>⠀HUNGER GAMES
- ⠀⠀⠀⠀⠀>⠀ALICE IN BORDERLAND , maaaaaybee - we'll see where the star's fate takes us!
+ ⠀⠀⠀⠀⠀>⠀GENERATION LOSS⠀⠀.⠀ THE MAZERUNNER TRILOGY⠀⠀.⠀ HUNGER GAMES⠀⠀.⠀ ALICE IN BORDERLAND , maaaaaybee - we'll see where the star's fate takes us!
  ⠀⠀⠀⠀⠀THE whole idea, yes the whole idea, you READ it right.
- ⠀⠀⠀⠀⠀⠀ for the puzzles / solving codes in this au was mostly inspired by THE TWENTY ONE PILOTS' level of concern ARG & the dmaorg.info website.
+ ⠀⠀⠀⠀⠀⠀ ⠀⠀.⠀ ⠀⠀.⠀ ⠀⠀.⠀ for the puzzles / solving codes in this au was mostly inspired by THE TWENTY ONE PILOTS' level of concern ARG & the dmaorg.info website.
  
  
  ⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=TheBrokenMirrors&label=profile+visits&color=ff0000)
